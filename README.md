@@ -20,8 +20,8 @@ Se empieza a intensificar,</br>
 símbolos por todos lados,</br>
 se empiezan a visualizar,</br>
 fuera ya las ropas,</br>
-ritual va a comenzar.</br>
+el ritual va a comenzar.</br>
 </br>
-Bailan entre si unos cuerpos desnudos,</br>
+Bailan entre si los cuerpos desnudos,</br>
 éxtasis y frenesí,</br>
-se culmina para cerrar el conjuro.</br>
+hay que culminar para cerrar el conjuro.</br>
