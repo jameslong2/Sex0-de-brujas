@@ -1,7 +1,7 @@
 # Sex0-de-brujas
 En la casa de madera,</br>
 fuera está subiendo la marea,</br>
-asciende la noche negra,</br>
+asciende noche negra,</br>
 hoy habrá luna llena.</br>
 </br>
 En preparación un brebaje,</br>
